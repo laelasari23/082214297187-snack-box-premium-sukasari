@@ -7,6 +7,6 @@ Selain variasi dan fleksibilitas, kualitas bahan yang digunakan dalam pembuatan 
 hubungi kontak di Bawah
 082214297187
 082214297187
-https://snackboxsukasari.blogspot.com/
-https://share.evernote.com/note/8675e580-d64b-e427-a06b-f7a21db8bd58
+https://medium.com/@laelapkl8/082214297187-snack-box-ringan-di-cibereum-snack-box-mini-di-cibeureum-03c23eb431f6
+
 
